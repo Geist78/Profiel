@@ -3,3 +3,5 @@
 
 ## About me
 
+## what I learn / can do
+
